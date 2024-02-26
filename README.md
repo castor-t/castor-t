@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Castor Troy
+- 👀 I’m interested in swapping faces
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on trading faces with you
+- 😄 Pronouns: gimme dat face
